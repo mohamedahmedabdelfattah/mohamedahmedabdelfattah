@@ -1,5 +1,5 @@
 
-### Hi there 👋, I'm Mohamed, a passionate technology enthusiast passionate about Cryptocurrencies, Blockchain, Fintech, E-Payments and E-Commerce.
+### Hi there 👋, I'm Mohamed, a technology enthusiast passionate about Cryptocurrencies, Blockchain, Fintech, E-Payments and E-Commerce.
 
 You can contact me through: https://www.linkedin.com/in/mafattah for any request:
 
