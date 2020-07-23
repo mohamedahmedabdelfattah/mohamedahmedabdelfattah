@@ -1,7 +1,9 @@
 
 ### Hi there 👋, I'm Mohamed, a technology enthusiast passionate about Cryptocurrencies, Blockchain, Fintech, E-Payments and E-Commerce.
 
-You can contact me through: https://www.linkedin.com/in/mafattah for any request:
+I help small and medium sized businesses manager their online presence enabling them to reach their full potential.
+
+Since time is the most important asset after health, why waste it when you can hire us, You can reach us through: https://www.linkedin.com/in/mafattah for any request:
 
 I can assist you with the below WordPress services and whatever else I can:
 
