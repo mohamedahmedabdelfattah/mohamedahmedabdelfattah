@@ -3,7 +3,7 @@
 
 You can contact me through: https://www.linkedin.com/in/mafattah for any request:
 
-I can assist you with the below WordPress services or whatever I can:
+I can assist you with the below WordPress services and whatever else I can:
 
 Building new websites
 
