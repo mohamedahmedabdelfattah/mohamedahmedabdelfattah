@@ -1,5 +1,5 @@
 
-### Hi there 👋, I'm Mohamed, a technology enthusiast passionate about Cryptocurrencies, Blockchain, Fintech, E-Payments and E-Commerce.
+### Hi there 👋, I'm Mohamed, a technology enthusiast passionate about Cryptocurrencies, Blockchain, Fintech, Digital Transformation and E-Commerce.
 
 I help small and medium sized businesses manager their online presence enabling them to reach their full potential.
 
