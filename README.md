@@ -1,9 +1,9 @@
 
 ### Hi there 👋, I'm Mohamed, a technology enthusiast passionate about Cryptocurrencies, Blockchain, Fintech, Digital Transformation and E-Commerce.
 
-I help small and medium sized businesses manager their online presence enabling them to reach their full potential.
+I help small and medium sized businesses 'SMEs' manage their online presence, paving the way for them to focus on reaching their full potential.
 
-Since time is the most important asset after health, why waste it when you can hire us, You can reach us through: https://www.linkedin.com/in/mafattah for any request:
+Since time is the second most important asset after our health, why waste it trying to figure technical details when you can delegate such tasks to professionals, get in touch now through: https://www.linkedin.com/in/mafattah for any request:
 
 I can assist you with the below WordPress services and whatever else I can:
 
