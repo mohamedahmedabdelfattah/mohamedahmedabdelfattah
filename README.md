@@ -8,16 +8,27 @@ Since time is the second most important asset after our health, why waste it try
 I can assist and provide support in regards to managing WordPress websites and woocommerce shops that includes:
 
 Building new websites
+
 Hacked Website Clean up and Repair
+
 Website Recovery
+
 Website Maintenance
+
 Security and protection hardening
+
 Performance Optimization
+
 E-Commerce Support and Management
+
 Website Improvements and new features
+
 Backups
+
 Host Transfers
+
 Hosting and Domain Support
+
 DNS and SSL Support
 
 <!--
