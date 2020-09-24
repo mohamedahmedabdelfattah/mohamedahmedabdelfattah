@@ -3,32 +3,21 @@
 
 I help small and medium sized businesses 'SMEs' manage their online presence, paving the way for them to focus on reaching their full potential.
 
-Since time is the second most important asset after our health, why waste it trying to figure out the technical stuff when you can delegate such tasks to professionals, get in touch now through: https://www.linkedin.com/in/mafattah for any request:
+Since time is the second most important asset after our health, why waste it trying to figure out the technical stuff when you can delegate such tasks to professionals, get in touch with me now through: https://www.linkedin.com/in/mafattah for any consultation.
 
-I can assist you with the below WordPress services and whatever else I can:
+I can assist and provide support in regards to managing WordPress websites and woocommerce shops that includes:
 
 Building new websites
-
 Hacked Website Clean up and Repair
-
 Website Recovery
-
 Website Maintenance
-
 Security and protection hardening
-
 Performance Optimization
-
 E-Commerce Support and Management
-
 Website Improvements and new features
-
 Backups
-
 Host Transfers
-
 Hosting and Domain Support
-
 DNS and SSL Support
 
 <!--
