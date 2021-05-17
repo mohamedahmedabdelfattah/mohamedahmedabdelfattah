@@ -1,11 +1,11 @@
 
 ### Hi there 👋, I'm Mohamed, a technology enthusiast passionate about Cryptocurrencies, Blockchain, Fintech, Digital Transformation and E-Commerce.
 
-I help small and medium sized businesses 'SMEs' manage their online presence, paving the way for them to focus on reaching their full potential.
+I help startups and 'SMEs' succeed and manage their online presence, paving the way to reaching their full potential.
 
 Since time is the second most important asset after our health, why waste it trying to figure out the technical stuff when you can delegate such tasks to professionals, get in touch with me now through: https://www.linkedin.com/in/mafattah for any consultation.
 
-I can assist and provide support in regards to managing WordPress websites and woocommerce shops that includes:
+I also can assist and provide support in regards to managing WordPress websites and woocommerce shops that includes:
 
 Building new websites
 
