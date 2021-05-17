@@ -1,7 +1,7 @@
 
 ### Hi there 👋, I'm Mohamed, a technology enthusiast passionate about Cryptocurrencies, Blockchain, Fintech, Digital Transformation and E-Commerce.
 
-I help drvie startups and SMEs success, paving the way to reach their full potential.
+I help drive startups and SMEs success, paving the way to reach their full potential.
 
 Get in touch with me now through: https://www.linkedin.com/in/mafattah for any consultation.
 
