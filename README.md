@@ -1,7 +1,7 @@
 
 ### Hi there 👋, I'm Mo, a technology enthusiast passionate about Fintech, Crypto currencies, Blockchain and E-Commerce.
 
-I help drive startups and SMEs success, paving the way to reach their full potential.
+I help drive startups success, paving the way to reach their full potential.
 
 Get in touch with me now through: https://www.linkedin.com/in/mafattah for any consultation.
 
